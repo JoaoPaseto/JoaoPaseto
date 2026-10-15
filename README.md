@@ -1,4 +1,4 @@
-# `> João Pedro Paseto`
+# `> João Paseto`
 
 ### `Desenvolvedor em formação | Explorando o universo da tecnologia`
 
